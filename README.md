@@ -1,2 +1,0 @@
-# MSG-Foundation
-#abacaxi vermelho 
